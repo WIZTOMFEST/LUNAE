@@ -5,5 +5,4 @@
     
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
-Graphic and divider belongs to [prncei](https://www.tumblr.com/prncei/757795418441744384/hi-mootie-tootiecould-i-request-dan-heng)<br>
-Pfp is a graphic by [kirakuurusu](https://www.tumblr.com/kirakuurusu/758911641796722688/dan-heng-rentry-graphics-rentry-graphics)
+Graphic and divider belongs to [prncei](https://www.tumblr.com/prncei/757795418441744384/hi-mootie-tootiecould-i-request-dan-heng)
